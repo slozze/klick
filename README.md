@@ -23,3 +23,27 @@ En photographie, le temps de pose (aussi appelé vitesse d’obturation), corres
 La maitrise du temps de pose va vous permettre d’effectuer de magnifiques photos artistiques. Un sujet en mouvement et capturé en pose longue fera apparaitre des traînées sur l’image.
 
 ![alt text](https://www.darty.com/darty-et-vous/sites/default/files/thumbnails/image/circulation-nuit600.jpg)
+
+## Permet De Développer La Créativité.
+
+![alt text](https://www.coevolution.fr/media/creativite-1-web.jpg)
+
+Créer et s'exprimer.
+
+## Expérience Que Donne La Photographie.
+
+L'expérience de travailler à plusieurs endroits. ''Set Up''
+Motivant.
+![alt text](https://www.gallaghiemonti.it/prog_07-13/images/fotogallery/territorio/testate_gal7.jpg/_full.jpg)
+
+## Les Différents Types d'Appareil. 
+
+Avoir un modèle qui convient à ses besoins. 
+
+![alt text](https://www.gnuarch.org/wp-content/uploads/2020/04/meilleurs-appareils-photo-reflex-2020.jpg)
+
+## La Marche À Suivre.
+
+Prendre le plus de photos possibles, n'importe où.
+
+![alt text](https://cdn2.momjunction.com/wp-content/uploads/2015/11/Photo-adventure-scavenger-hunt.jpg)
