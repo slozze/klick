@@ -34,6 +34,7 @@ Créer et s'exprimer.
 
 L'expérience de travailler à plusieurs endroits. ''Set Up''
 Motivant.
+
 ![alt text](https://www.gallaghiemonti.it/prog_07-13/images/fotogallery/territorio/testate_gal7.jpg/_full.jpg)
 
 ## Les Différents Types d'Appareil. 
